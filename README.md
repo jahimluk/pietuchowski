@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @pietuchowski
-- 👀 Jestem zainteresowany medytacjąi pustką
+- 👀 Jestem zainteresowany medytacją i pustką
 - 🌱 Obecnie uczę się pracy nad ciałem i duchem
 - 💞️ Szukam osób, które wspólnie chcą stworzyć coś wartościowego, z humorem oraz biznesem
 - 📫 Możesz złapać mnie na facebooku fb.com/luk.pietuchowski
